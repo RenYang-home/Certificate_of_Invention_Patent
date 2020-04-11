@@ -1,1 +1,1 @@
-![ ](ICME_award.png)
+![ ](ICME_award.jpg)
